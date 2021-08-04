@@ -1,4 +1,4 @@
-### Hi everyone this sravan kumar saka- aka [ codeSTACKr ] [ SCRUMASTER ] [ BUSINESS ANALYST ] 
+### Hi everyone this sravan kumar saka- aka  [ SCRUMASTER ] [ BUSINESS ANALYST ] 
 i Been enjoying learning since how easy github made coding look easier
 
 
